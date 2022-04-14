@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **everything cuz i'm not good :'(**
 
-- 📫 How to reach me **https://twitter.com/ivxst**
+- 📫 How to reach me **ivxst@protonmail.com**
 
 - ⚡ Fun fact **i hate CSS**
 
