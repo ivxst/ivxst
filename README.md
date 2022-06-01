@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **HoriOS**
 
-- 🌱 I’m currently learning **everything cuz i'm not good :'(**
+- 🌱 I am in a **dev school** (42)
 
 - 📫 How to reach me **ivxst@protonmail.com**
 
